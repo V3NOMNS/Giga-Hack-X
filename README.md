@@ -1,2 +1,2 @@
 # Giga-Hack-X
-Free I ready hack with multiple versions!
+DO NOT USE THIS AS IT IS NOT COMPLETED YOU MAY USE BLOOKET THOUGH.
