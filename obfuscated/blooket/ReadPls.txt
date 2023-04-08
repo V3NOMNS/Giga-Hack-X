@@ -1,5 +1,5 @@
 ⚠️SOME OF THIS CODE DOES NOT BELONG TO ME I WILL PUTTING THERE GITHUB REPOSITORYS BELOW THIS⚠️
-also if you are actually gonna use this you need to read the sidenote file
+also if you are actually gonna use this you need to read the sidenote file in the homepage
 
 Credits to:
 https://github.com/Doomlands/blookethack
