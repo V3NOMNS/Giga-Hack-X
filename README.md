@@ -8,3 +8,4 @@ No this is not discontinued ive just been busy with school and shi
 
 # Information
 Hello, this is a free blooket and iready hack/cheat (i-ready is probably gonna be removed soon) this may take a while to develop so please wait until the Main says you can use it.
+https://play.blooket.com/play
